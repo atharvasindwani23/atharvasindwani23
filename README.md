@@ -7,10 +7,14 @@ since being a kid i've loved expressing myself, either through dramatics, write-
 i want to spend 2026 working on a series of goals
 
 > run a half marathon
+
 > make 20 more projects
+
 > get a job
+
 > buy my mom a designer bag
-> buy my dad a rolex
+
+> buy my dad a rolex, 
 
 
 
