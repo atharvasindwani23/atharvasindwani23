@@ -1,10 +1,16 @@
-hi, i'm atharva :)
+Hi, I'm Atharva :)
 
-i love cats, brunch and pickleball
+I love cats, brunch and pickleball
 
-since being a kid i've loved expressing myself, either through dramatics, write-ups and now websites. at my core, my biggest strength is storytelling; that's the part of tech which i love the designs, the small decisions, the carefully worded product launch, the logos, the merch, the office design. product harnesses the story software so desperately wants to tell. and i hope to be amazing at that. 
+Since being a kid i've loved expressing myself, either through dramatics, write-ups and now websites. 
 
-i want to spend 2026 working on a series of goals
+At my core, my biggest strength is storytelling; that's the part of tech which i love. 
+
+The designs, the small decisions, the carefully worded product launch, the logos, the merch, the office design. 
+
+Product harnesses the story software so desperately wants to tell. and i hope to be amazing at that. 
+
+I want to spend 2026 working on a series of goals
 
 > run a half marathon
 
