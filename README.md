@@ -20,7 +20,7 @@ I want to spend 2026 working on a series of goals
 
 > buy my mom a designer bag
 
-> buy my dad a rolex, 
+> buy my dad a rolex
 
 
 
