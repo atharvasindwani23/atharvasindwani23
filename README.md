@@ -6,7 +6,7 @@ Since being a kid i've loved expressing myself, either through dramatics, write-
 
 At my core, my biggest strength is storytelling; that's the part of tech which i love. 
 
-The designs, the small decisions, the carefully worded product launch, the logos, the merch, the office design. 
+The designs, the small decisions, the carefully worded product launch, the logos, the merch, the office aesthetic. 
 
 Product harnesses the story software so desperately wants to tell. and i hope to be amazing at that. 
 
